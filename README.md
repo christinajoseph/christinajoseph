@@ -2,7 +2,7 @@
 - 👀 I’m interested in exploring new concepts in my feild
 - 🌱 I’m currently learning b.tech information techonology
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me 
+- 📫 reach me through linkedin
 - ⚡ Fun fact: i do better in group
 
 <!---
